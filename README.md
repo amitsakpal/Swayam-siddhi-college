@@ -1,2 +1,1 @@
-# Swayam-siddhi-college
-New advertisement 
+Tcm etiology
